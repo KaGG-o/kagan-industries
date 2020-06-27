@@ -1,1 +1,1 @@
-# kagan-industries
+# Kagan-Industries
